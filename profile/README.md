@@ -1,0 +1,3 @@
+# A new demoscene group around the local corner!
+
+Stuff will come soon...
